@@ -3,3 +3,7 @@ collaborating
 
 Learning HOW to learn and research is even more important than
 rote memorization
+
+Strategies
+-Make more use of the supplemental resources available to me
+-Be more involved in study group, the community, etc.
