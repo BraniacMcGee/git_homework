@@ -7,3 +7,5 @@ rote memorization
 Strategies
 -Make more use of the supplemental resources available to me
 -Be more involved in study group, the community, etc.
+
+Shoutout to my amazing partner Faith for being my rock as I start this crazy new journey!
