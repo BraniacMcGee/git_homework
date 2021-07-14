@@ -12,5 +12,3 @@ Shoutout to my amazing partner Faith for being my rock as I start this crazy new
 
 
 Work on your keyboard shortcuts!!
-
-Continue having fun, this is fun!
